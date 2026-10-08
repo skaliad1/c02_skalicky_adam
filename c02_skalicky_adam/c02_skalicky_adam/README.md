@@ -1,0 +1,1 @@
+Ve Wordu PozadavkyPGRF1_Task1_2026.docx (doc) je vše potřebné (ovládání + popis) 
